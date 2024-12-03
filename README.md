@@ -1,2 +1,0 @@
-# arinapetrova.github.io
-Hellloooooo
